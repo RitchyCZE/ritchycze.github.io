@@ -1,2 +1,0 @@
-# ritchycze.github.io
-Hi!
