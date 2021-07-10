@@ -1,1 +1,2 @@
 # ritchycze.github.io
+Hi!
